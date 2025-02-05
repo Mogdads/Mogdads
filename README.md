@@ -1,4 +1,8 @@
 ## Hi there 👋
+I'm currently (Feb 2025) studying in the University of Birmingham, 2nd Year Computer Science and Artificial Intelligence
+I'm very active on Snapchat: mogdads
+You can also reach out on Instagram (mogdad_966), and X (formerly Twitter) (mogdadaziz).
+When I graduate, I will be working in Information Protection Department with the big oil company Saudi Aramco.
 
 <!--
 **Mogdads/Mogdads** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
